@@ -22,7 +22,7 @@ Sur mon GitHub, vous découvrirez mes projets et expérimentations dans différe
 
 ## Me contacter
 📧 **Email** : mccabe.nil@mail.com
-🔗 **LinkedIn** : https://www.linkedin.com/in/nil-mc-cabe-353182329/
+🔗 **LinkedIn** : https://www.linkedin.com/in/nil-mc-cabe-b93980329/
 
 Merci d'avoir visité mon profil et n'hésitez pas à explorer mes projets ! 🚀
  
